@@ -2,7 +2,22 @@
 - 👀 I’m interested in Security
 - 🌱 I’m currently learning Machine learning 
 - 💞️ I’m looking to collaborate on Security projects
-- 📫 How to reach me : through Github
+- 📫 ▬▬▬.◙.▬▬▬
+═▂▄▄▓▄▄▂
+◢◤ █▀▀████▄▄▄▄◢◤
+█▄ █ █▄ ███▀▀▀▀▀▀▀╬
+◥█████◤
+══╩══╩═
+╬═╬
+╬═╬
+╬═╬
+╬═╬
+╬═╬ just dropping in to say
+╬═╬    
+╬═╬ How to reach me : through **Github** or on **email** seanwasonga@live.com
+╬═╬😎/
+╬═╬/▌
+╬═╬/  \
 
 <!---
 KwachSean/KwachSean is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
